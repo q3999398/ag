@@ -1,13 +1,12 @@
 <h1 class="entry-title">认真看，真的有用，真的！</h1>
-<p><strong>出嘿之前确认问题：</strong></p>
-
+<h2>出嘿之前确认问题：</h2>
 
 
 <ol><li>先确定，你的账号登录游戏额度转化是不是正常，如果不是 没必要看下面几条了</li><li>如果满足1，网址发一下，有网址才知道可不可以操作！不是所有网站都可以操作</li><li>被嘿额度多少？</li><li>被嘿多久了？</li><li>被嘿原因是什么？</li></ol>
 
 
 
-<p><strong>出嘿流程、细节：</strong></p>
+<p><h2>出嘿流程、细节：</h2></p>
 
 
 
@@ -15,7 +14,7 @@
 
 
 
-<p><strong>出嘿注意事项：</strong></p>
+<p><h2>出嘿注意事项：</h2></p>
 
 
 
@@ -23,7 +22,7 @@
 
 
 
-<p><strong>出嘿常见问题：</strong></p>
+<p><h2>出嘿常见问题：</h2></p>
 
 
 
@@ -31,7 +30,7 @@
 
 
 
-<p><strong>说一下怎么选网站，都是我自己总结的</strong></p>
+<p><h2>说一下怎么选网站，都是我自己总结的</h2></p>
 
 
 
@@ -43,7 +42,7 @@
 
 
 
-<p><strong>知识：</strong><br><strong>1. AG集团：</strong></p>
+<p><h2>知识：</h2><br><h2>1. AG集团：</h2></p>
 
 
 
@@ -59,7 +58,7 @@
 
 
 
-<p>3. <strong>猎杰集团：</strong></p>
+<p>3. <h2>猎杰集团：</h2></p>
 
 
 
@@ -67,7 +66,7 @@
 
 
 
-<p><strong>关于usdt注册充值：</strong></p>
+<p><h2>关于usdt注册充值：</h2></p>
 
 
 
@@ -95,11 +94,11 @@
 
 
 
-<p><strong>网站推荐：信不过就自己找</strong></p>
+<p><h2>网站推荐：信不过就自己找</h2></p>
 
 
 
-<p><strong>第一个：</strong><br><strong>AG:</strong><br>推荐：<a rel="noreferrer noopener" href="https://www.jy8836.com/register?rc=2657380" target="_blank">环亚改名九游会</a>: <a rel="noreferrer noopener" href="https://www.jy8836.com/register?rc=2657380" target="_blank">点击进入</a> （虚拟币充提）推荐</p>
+<p><h2>第一个：</h2><br><h2>AG:</h2><br>推荐：<a rel="noreferrer noopener" href="https://www.jy8836.com/register?rc=2657380" target="_blank">环亚改名九游会</a>: <a rel="noreferrer noopener" href="https://www.jy8836.com/register?rc=2657380" target="_blank">点击进入</a> （虚拟币充提）推荐</p>
 
 
 
@@ -115,7 +114,7 @@
 
 
 
-<p><strong>第二个：需要复制到浏览器打开</strong><br>凤凰博猫：（支持人民币、虚拟币USDT充提）</p>
+<p><h2>第二个：需要复制到浏览器打开</h2><br>凤凰博猫：（支持人民币、虚拟币USDT充提）</p>
 
 
 
@@ -127,7 +126,7 @@
 
 
 
-<p><strong>第三个：（支持人民币，USDT充提）需要复制到浏览器打开</strong><br>猎杰杏耀：<a rel="noreferrer noopener" href="https://www.gtomat.com/s1/gprgbr" target="_blank">https://www.gtomat.com/s1/gprgbr</a><br>登录: <a rel="noreferrer noopener" href="http://speed.xinyao888.net" target="_blank">http://speed.xinyao888.net</a><br><strong>先注册后登陆</strong></p>
+<p><h2>第三个：（支持人民币，USDT充提）需要复制到浏览器打开</h2><br>猎杰杏耀：<a rel="noreferrer noopener" href="https://www.gtomat.com/s1/gprgbr" target="_blank">https://www.gtomat.com/s1/gprgbr</a><br>登录: <a rel="noreferrer noopener" href="http://speed.xinyao888.net" target="_blank">http://speed.xinyao888.net</a><br><h2>先注册后登陆</h2></p>
 
 
 
