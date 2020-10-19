@@ -1,4 +1,4 @@
-<h1><font color="red">内容开始</font></h1>
+<font size=30 color="red">内容开始</font>
 <h1>认真看，真的有用，真的！</h1>
 <h2>出嘿之前确认问题：</h2>
 
