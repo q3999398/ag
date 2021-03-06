@@ -58,12 +58,6 @@
 
 
 
-<p>3. <h2>猎杰集团：</h2></p>
-
-
-
-<p>包括： 杏彩、杏耀、杏鑫、齐天 等等</p>
-
 
 
 <p><h2>关于usdt注册充值（不需要的略过，继续往下看）：</h2></p>
@@ -97,8 +91,20 @@
 <p><h2>网站推荐：信不过就自己找</h2></p>
 
 
+<p><h2>第一个：可能需要复制到浏览器打开</h2><br>凤凰博猫：（支持人民币、虚拟币USDT充提）</p>
 
-<p><h2>第一个：AG集团:</h2><br>推荐：<a rel="noreferrer noopener" href="https://www.jy8836.com/register?rc=2657380" target="_blank">环亚改名九游会</a>: <a rel="noreferrer noopener" href="https://www.jy8836.com/register?rc=2657380" target="_blank">点击进入</a> （虚拟币充提）推荐</p>
+
+
+<p><a rel="noreferrer noopener" href="http://www.ibomao888.com/reg/93da8fe6" target="_blank">http://www.ibomao888.com/reg/93da8fe6 </a>【菜票、足球篮球、电子等等，种类很全，很安全】<br><a rel="noreferrer noopener" href="http://www.ibomao888.com/reg/93da8fe6" target="_blank">http://www.ibomao888.com/reg/93da8fe6 </a>【菜票、足球篮球、电子等等，种类很全，很安全】</p>
+
+博猫手机App:
+
+<img src="https://i.loli.net/2021/03/05/4GkvQqFDaUT6xH7.jpg" >
+
+
+<p>=======================</p>
+
+<p><h2>第二个：AG集团:</h2><br>推荐：<a rel="noreferrer noopener" href="https://www.jy8836.com/register?rc=2657380" target="_blank">环亚改名九游会</a>: <a rel="noreferrer noopener" href="https://www.jy8836.com/register?rc=2657380" target="_blank">点击进入</a> （虚拟币充提）推荐</p>
 
 
 
@@ -114,19 +120,7 @@
 
 
 
-<p><h2>第二个：需要复制到浏览器打开</h2><br>凤凰博猫：（支持人民币、虚拟币USDT充提）</p>
 
-
-
-<p><a rel="noreferrer noopener" href="http://www.bomao88.com/reg/632d2b4c" target="_blank">http://www.bomao88.com/reg/632d2b4c</a> 【除菜票以外】<br><a rel="noreferrer noopener" href="http://www.bomao66.com/reg/632d2b4c" target="_blank">http://www.bomao66.com/reg/632d2b4c </a>【除菜票以外】<br><a rel="noreferrer noopener" href="http://www.bomao66.com/reg/93da8fe6" target="_blank">http://www.bomao66.com/reg/93da8fe6 </a>【菜票玩家】<br><a rel="noreferrer noopener" href="http://www.bomao88.com/reg/93da8fe6" target="_blank">http://www.bomao88.com/reg/93da8fe6 </a>【菜票玩家】</p>
-
-
-
-<p>=======================</p>
-
-
-
-<p><h2>第三个：（支持人民币，USDT充提）需要复制到浏览器打开</h2><br>猎杰杏耀：<a rel="noreferrer noopener" href="https://www.gtomat.com/s1/gprgbr" target="_blank">https://www.gtomat.com/s1/gprgbr</a><br>登录: <a rel="noreferrer noopener" href="http://speed.xinyao888.net" target="_blank">http://speed.xinyao888.net</a><br><h2>先注册后登陆</h2></p>
 
 
 
